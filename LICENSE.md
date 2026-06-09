@@ -1,4 +1,4 @@
-# 
+# Inteligente sandwich attack bot scripts para Mac OS | Gratuito sandwich attack bot scripts para PC Windows. Com avaliação de riscos e otimização de preço de gás — otimizado para máximo desempeño en cada plataforma.
 
 
 
